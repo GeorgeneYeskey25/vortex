@@ -2,7 +2,7 @@
 
 [http://bar47o4dyrhxgnsa5zg5pkis7ye6gxcqa6ndwys4i2kzmzkzgvqoghyd.onion/](http://bar47o4dyrhxgnsa5zg5pkis7ye6gxcqa6ndwys4i2kzmzkzgvqoghyd.onion/)
 
-### http://bar47o4dyrhxgnsa5zg5pkis7ye6gxcqa6ndwys4i2kzmzkzgvqoghyd.onion
+### bar47o4dyrhxgnsa5zg5pkis7ye6gxcqa6ndwys4i2kzmzkzgvqoghyd.onion
 
 Vortex Market is your trusted destination for acquiring premium recreational substances with unparalleled discretion and security. We understand the importance of quality, reliability, and anonymity, and our platform is meticulously designed to meet your needs.
 
